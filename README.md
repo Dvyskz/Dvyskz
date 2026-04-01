@@ -6,7 +6,7 @@
 
 ---
 
-Aprendo, construyo y rompo cosas para entender cómo funcionan.
+electrolit de coco.com
 
 ---
 
